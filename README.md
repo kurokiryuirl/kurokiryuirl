@@ -1,4 +1,1 @@
-<img width="338" height="42" alt="fire-divider" src="https://github.com/user-attachments/assets/d22a6365-0e52-4412-bd9f-e8bc01263e35" />
-
-<img width="374" height="280" alt="это что прости" src="https://github.com/user-attachments/assets/165dbc46-94db-490e-bca3-31491f620644" />
-
+https://cdn.discordapp.com/attachments/1360291833804226602/1527689561977651385/latest.png?ex=6a5b9346&is=6a5a41c6&hm=339947ae7329ea12b3791876a6541a3272893fe16c9256db0c89bb70625c2866&
