@@ -1,4 +1,43 @@
-<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=M+PLUS+Rounded+1c&weight=300&size=23&duration=1500&pause=1500&color=C7C7C7&center=true&vCenter=true&lines=YOU'RE+MY+SUN,+TETSU. alt="Typing SVG" /></a> </div>
+<!DOCTYPE html>
+<html lang="en">
+
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Typing Animation</title>
+</head>
+
+<body>
+    <!-- The code container will be dynamically created and styled by the library -->
+
+    <!-- Include the typing animation library -->
+    <script src="../dist/TypingAnimation.js"></script>
+
+    <script>
+        // The text to be animated
+        const codeText = `
+body {
+    background-color: #282c34;
+    color: #abb2bf;
+    font-family: 'Courier New', monospace;
+    display: flex;
+    justify-content: center;
+    align-items: center;
+    height: 100vh;
+    margin: 0;
+} 
+`;
+
+    // Create a container element where the animation will appear
+    const codeContainer = document.createElement('div');
+    document.body.appendChild(codeContainer);
+    // Initialize and start the typing animation
+    const typing = new TypingAnimation({ element: codeContainer, text: codeText });
+    typing.start();
+</script>
+</body>
+
+</html>
 <img width="870" height="380" alt="latest" src="https://github.com/user-attachments/assets/4df5c7db-0f8e-497c-8559-e298429d0d72" />
 
 feel free to interact in any way! im mostly afk tho
