@@ -4,6 +4,7 @@
 feel free to interact in any way! im mostly afk tho
 
 STOP RUNNING AWAY FROM ME WHAT DID I DO
-<img width="325" height="194" alt="picmix com_13896907 (1)" src="https://github.com/user-attachments/assets/58947d16-f3ae-4ce0-8899-98142a7a6d99" />
+<img width="200" height="40" alt="6fb688b0" src="https://github.com/user-attachments/assets/a2a07007-1dd0-4532-b267-6168a85b7af2" />
+
 <img width="640" height="308" alt="blur_edges" src="https://github.com/user-attachments/assets/3b542c60-7de5-4893-96bb-41bd576d47af" />
 
