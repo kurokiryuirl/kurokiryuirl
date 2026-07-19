@@ -2,4 +2,4 @@
 <div align="center"> <img width="640" height="308" alt="blur_edges" src="https://github.com/user-attachments/assets/2a369921-609b-47e3-8bc4-6def50325cfe" /></div>
 
 feel free to interact! im mostly afk tho
-<div align="center"><img width="255" height="54" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /></div>
+<div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /></div>
