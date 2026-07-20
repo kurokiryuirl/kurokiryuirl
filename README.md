@@ -3,4 +3,3 @@
 
 feel free to interact! im mostly afk tho
 <div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /></div>
-<iframe src="https://open.spotify.com/track/1MNndtMuFO0MAiK17HyeBm?si=d90b1bb3604c43a3" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
