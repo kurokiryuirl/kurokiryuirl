@@ -8,7 +8,7 @@
 <div align="center">my main fandoms are...</div>
 <div align="center"><kbd>enstars 18trip yakuza persona hypmic</kbd></div>
 interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
-im okay with friend requests too! (っ´ཀ`)っ
+<div align="center">im okay with friend requests too! (っ´ཀ`)っ</div>
 
 <img width="250" height="130" alt="b62266dd77d10fe3b62b1337689ed2c2 (1)" src="https://github.com/user-attachments/assets/e0e3a37b-0d32-4c56-af42-2bfb7849df55" />
 ⎛⎝( ` ᢍ ´ )⎠⎞ᵐᵘʰᵃʰᵃ
