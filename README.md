@@ -4,10 +4,9 @@
 
 
 <div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /><img width="118" height="36" alt="outlaw" src="https://github.com/user-attachments/assets/3dbb34b4-eb92-40f7-9256-3008e8d1f9e3" /></div>
-<div align="center">jenya 𝄞⨾𓍢ִ໋ heshe minor @ kurokiryuirl sp9w8</div>
-
-my main fandoms are...
-enstars 18trip yakuza persona hypmic
+<div align="center">‎𓏲  jenya 𝄞⨾𓍢ִ໋  <del>heshe</del>  <kbd>sp9w8</kbd>
+<div align="center">my main fandoms are...</div>
+<div align="center"><kbd>enstars 18trip yakuza persona hypmic</kbd></div>
 interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
 im okay with friend requests too! (っ´ཀ`)っ
 
