@@ -4,11 +4,13 @@
 
 
 <div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /><img width="118" height="36" alt="outlaw" src="https://github.com/user-attachments/assets/3dbb34b4-eb92-40f7-9256-3008e8d1f9e3" /></div>
-<div align="center">‎𓏲  jenya 𝄞⨾𓍢ִ໋  <del>heshe</del>  <kbd>sp9w8</kbd>
+<div align="center">‎𓏲  jenya or dakota 𝄞⨾𓍢ִ໋  <del>heshe</del> <b>minor</b> <kbd>sp9w8</kbd>
 <div align="center">my main fandoms are...</div>
 <div align="center"><kbd>enstars 18trip yakuza persona hypmic</kbd></div>
 interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
 <div align="center">im okay with friend requests too! (っ´ཀ`)っ</div>
+<div align="center"><img width="512" height="188" alt="image" src="https://github.com/user-attachments/assets/64e9a61f-c16e-4279-a643-a7d692df469d" />
+</div>
+i dont have exact dni list but ill make it clear if i dont want to interact.
+lastly - i can be really awkward due to my poor knowledge of foreign languages, sorry for that.
 
-<img width="250" height="130" alt="b62266dd77d10fe3b62b1337689ed2c2 (1)" src="https://github.com/user-attachments/assets/e0e3a37b-0d32-4c56-af42-2bfb7849df55" />
-⎛⎝( ` ᢍ ´ )⎠⎞ᵐᵘʰᵃʰᵃ
