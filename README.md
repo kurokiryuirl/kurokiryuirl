@@ -9,6 +9,7 @@
 my main fandoms are...
 enstars 18trip yakuza persona hypmic
 interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
-im okay with friend requests too! <img width="98" height="30" alt="botan-metal01-00" src="https://github.com/user-attachments/assets/f4f6233f-9337-408d-9af8-24dc7f656faf" />
+im okay with friend requests too! (っ´ཀ`)っ
 
-
+<img width="250" height="130" alt="b62266dd77d10fe3b62b1337689ed2c2 (1)" src="https://github.com/user-attachments/assets/e0e3a37b-0d32-4c56-af42-2bfb7849df55" />
+⎛⎝( ` ᢍ ´ )⎠⎞ᵐᵘʰᵃʰᵃ
