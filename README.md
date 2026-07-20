@@ -10,8 +10,6 @@
 <div align="center"><kbd>enstars 18trip yakuza persona hypmic</kbd></div>
 interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
 <div align="center">im okay with friend requests too! (っ´ཀ`)っ</div>
-<div align="center"><img width="512" height="188" alt="image" src="https://github.com/user-attachments/assets/64e9a61f-c16e-4279-a643-a7d692df469d" />
-</div>
 i dont have exact dni list but ill make it clear if i dont want to interact. <img width="20" height="20" alt="5lpz3j" src="https://github.com/user-attachments/assets/38617ffa-67ce-40bc-b638-aceb6b9088e4" />
 lastly - i can be really awkward due to my poor knowledge of foreign languages, sorry for that.
 <div align="center"><img width="325" height="194" alt="picmix com_13896907__1__transparent (2)" src="https://github.com/user-attachments/assets/c73d90a1-eee1-4420-8b3c-d463d609bc03" /></div>
