@@ -4,7 +4,7 @@
 
 
 <div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /><img width="118" height="36" alt="outlaw" src="https://github.com/user-attachments/assets/3dbb34b4-eb92-40f7-9256-3008e8d1f9e3" /></div>
-<div align="center">‎𓏲  jenya or dakota 𝄞⨾𓍢ִ໋  <del>he
+<div align="center">‎𓏲  <i>jenya</i> or <i>dakota</i> 𝄞⨾𓍢ִ໋  <del>he
 <img width="20" height="20" alt="wox82d" src="https://github.com/user-attachments/assets/4b1beb27-800c-4936-a3a8-da92b79442be" />she</del> <b>minor</b> <kbd>sp9w8</kbd>
 <div align="center">my main fandoms are...</div>
 <div align="center"><kbd>enstars 18trip yakuza persona hypmic</kbd></div>
