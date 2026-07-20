@@ -7,3 +7,5 @@
 
 my main fandoms are...
 enstars 18trip yakuza persona hypmic
+interact freely in any way, but if you want to say something - whisper rather. im mostly afk so i probably wont notice.
+im okay with friend requests too! 
