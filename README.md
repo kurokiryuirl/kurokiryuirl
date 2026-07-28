@@ -6,4 +6,4 @@
 <div align="center"><img width="170" height="36" alt="trueblood" src="https://github.com/user-attachments/assets/a9171d2d-cfd7-4bad-ba42-f04ea45c5222" /><img width="118" height="36" alt="outlaw" src="https://github.com/user-attachments/assets/3dbb34b4-eb92-40f7-9256-3008e8d1f9e3" /></div>
 <div align="center">‎𓏲  <i>jenya</i> 𝄞⨾𓍢ִ໋  <del>heshe</del><img width="20" height="20" alt="wox82d" src="https://github.com/user-attachments/assets/4b1beb27-800c-4936-a3a8-da92b79442be" <b>minor</b> <kbd>so8w9</kbd>
 
-<div align="center">i dont have exact dni list but ill make it clear if i dont like you, so interact freely in any way</div>
+<div align="center">i dont have exact dni list but ill make it clear if i dont like you, interact freely in any way</div>
