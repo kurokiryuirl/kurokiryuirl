@@ -7,4 +7,3 @@
 <div align="center">‎𓏲  <i>jenya</i> 𝄞⨾𓍢ִ໋  <del>heshe</del><img width="20" height="20" alt="wox82d" src="https://github.com/user-attachments/assets/4b1beb27-800c-4936-a3a8-da92b79442be" <b>minor</b> <kbd>so8w9</kbd>
 
 <div align="center">i dont have exact dni list but ill make it clear if i dont like you, interact freely in any way</div>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fd6gobatnc4cnvhwtcefs7avsu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=7e7d5d&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31fd6gobatnc4cnvhwtcefs7avsu&redirect=true) 
